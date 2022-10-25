@@ -1,1 +1,1 @@
-# trex-a-colordfghuiop
+# Juegos-compatibles-con-dispositivos
